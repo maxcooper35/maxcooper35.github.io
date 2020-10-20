@@ -1,2 +1,2 @@
-# max_cooper35.github.io
+# maxcooper35.github.io
 Podcast Channel
